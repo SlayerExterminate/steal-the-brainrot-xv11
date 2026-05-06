@@ -1,4 +1,4 @@
-
+Experience steal the brainrot base like never before with steal the brainrot base Scripts elite, the #1 Script. Includes aimbot and auto-heal for
 
 
 
